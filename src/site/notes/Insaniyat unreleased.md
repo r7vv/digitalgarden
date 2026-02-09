@@ -48,5 +48,4 @@ bhulunga nahi jo mujhpe guzre.
 
 
 ---
-Links:: [[Meta/People/Muhammed Umaid\|Muhammed Umaid]]
 Created: (created_date:: 2026-01-27 08:52 PM)
